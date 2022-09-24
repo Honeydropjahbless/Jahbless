@@ -1,2 +1,0 @@
-# Jahbless
-Be a Star
